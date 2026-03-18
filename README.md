@@ -14,7 +14,7 @@
 ╰┈➤ 🌷 Name: ꫀׁׅܻ݊ᥣׁׅ֪ᥣׁׅ֪  
 ╰┈➤ 🎨 I love ժׁׅ݊𝐫ɑׁׅᨰׁׅꪱׁׁׁׅׅׅ݊ꪀᧁׁ (still learning hehe)  
 ╰┈➤ 🌙 I like calm vibes & cute tׁׅhׁׅ֮ꪱׁׁׁׅׅׅ݊ꪀᧁׁׅ꯱ׅ꯱ (ig) ;3  
-╰┈➤ 💭 sometimes quiet, but I appreciate you  
+╰┈➤ 💭 sometimes quiet, but I appreciate you.  
 
 
 ## ♡ My Socials

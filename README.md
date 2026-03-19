@@ -7,11 +7,10 @@
 
 
 
+```html
 <p align="center">
-  <img src="https://tenor.com/uxVSzX1nRYb.gif" width="200"/>
+  <img src="https://media1.tenor.com/m/56KHf5LWCZgAAAAd/uma-musume-speed-trying-not-to-laugh.gif" width="200"/>
 </p>
-
-
 
 
 ## ♡ About Me

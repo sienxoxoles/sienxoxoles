@@ -11,11 +11,10 @@
 </p>
 
 
-• 🐾 Mostly hanging out in safe Indo servers. 
-•  Always keeping it chill & friendly :P 
-• 💬 Open to chat & meet nice people ✅  
-•  AFK sometimes, but I notice you ✨  
-
+🐾 Mostly found in safe Indo servers  
+✧ keeping things chill & easygoing  
+💬 open to meeting kind people  
+✨ often AFK, but I still notice you
 
 
 

@@ -6,18 +6,10 @@
 </p>
 
 
-
-```html
 <p align="center">
-  <img src="https://media1.tenor.com/m/56KHf5LWCZgAAAAd/uma-musume-speed-trying-not-to-laugh.gif" width="200"/>
+  <img src="https://media.tenor.com/56KHf5LWCZgAAAAd/uma-musume-speed-trying-not-to-laugh.gif" width="200"/>
 </p>
 
-
-## ♡ About Me
-╰┈➤ 🌷 Name: ꫀׁׅܻ݊ᥣׁׅ֪ᥣׁׅ֪  
-╰┈➤ 🎨 I love ժׁׅ݊𝐫ɑׁׅᨰׁׅꪱׁׁׁׅׅׅ݊ꪀᧁׁ (still learning hehe)  
-╰┈➤ 🌙 I like calm vibes & cute tׁׅhׁׅ֮ꪱׁׁׁׅׅׅ݊ꪀᧁׁׅ꯱ׅ꯱ (ig) ;3  
-╰┈➤ 💭 sometimes quiet, but I appreciate you.  
 
 • 🐾 Mostly hanging out in safe Indo Pony Town        servers  
 • 🛡️ Always keeping it chill & friendly  

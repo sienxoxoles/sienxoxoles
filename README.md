@@ -8,8 +8,8 @@
 
 
 <p align="center">
-  <img src="https://media.giphy.com/media/ABC123xyz/giphy.gif" width="200"/>
-</p>
+  <img src="https://tenor.com/uxVSzX1nRYb.gif" width="200"/>
+ </p>
 
 
 • 🐾 Mostly hanging out in safe Indo Pony Town        servers  

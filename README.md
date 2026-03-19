@@ -5,10 +5,17 @@
   🎀 beginner artist <br>
 </p>
 
+
+
 <p align="center">
   <img src="https://media.giphy.com/media/3oriO0OEd9QIDdllqo/giphy.gif" width="200"/>
 </p>
 
+
+• 🐾 Mostly hanging out in safe Indo Pony Town        servers  
+• 🛡️ Always keeping it chill & friendly  
+• 💬 Open to chat & meet nice people  
+• 🎮 AFK sometimes, but I notice you ✨  
 
 ## ♡ About Me
 ╰┈➤ 🌷 Name: ꫀׁׅܻ݊ᥣׁׅ֪ᥣׁׅ֪  

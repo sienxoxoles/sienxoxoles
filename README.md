@@ -11,10 +11,10 @@
 </p>
 
 
-• 🐾 Mostly hanging out in safe Indo Pony Town        servers  
-• 🛡️ Always keeping it chill & friendly  
-• 💬 Open to chat & meet nice people  
-• 🎮 AFK sometimes, but I notice you ✨  
+• 🐾 Mostly hanging out in safe Indo servers. 
+• Always keeping it chill & friendly :P 
+• 💬 Open to chat & meet nice people ✅  
+• AFK sometimes, but I notice you ✨  
 
 
 

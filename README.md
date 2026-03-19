@@ -12,9 +12,9 @@
 
 
 • 🐾 Mostly hanging out in safe Indo servers. 
-• Always keeping it chill & friendly :P 
+•  Always keeping it chill & friendly :P 
 • 💬 Open to chat & meet nice people ✅  
-• AFK sometimes, but I notice you ✨  
+•  AFK sometimes, but I notice you ✨  
 
 
 

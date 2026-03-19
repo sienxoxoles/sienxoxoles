@@ -19,7 +19,7 @@
 
 ## ♡ My Socials
 ╰┈➤ 📱 Instagram  
-https://www.instagram.com/misty._elle?igsh=YmZxdmk2bDNma3Y5
+[Instagram ♡](https://instagram.com/misty._elle)
 
 
 <p align="center">

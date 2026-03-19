@@ -9,7 +9,7 @@
 
 <p align="center">
   <img src="https://tenor.com/uxVSzX1nRYb.gif" width="200"/>
- </p>
+</p>
 
 
 • 🐾 Mostly hanging out in safe Indo Pony Town        servers  

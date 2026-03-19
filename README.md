@@ -7,7 +7,7 @@
 
 
 <p align="center">
-  <img src="https://media.tenor.com/RS0wq3Pf5qwAAAAC/uma-musume.gif" width="200"/>
+  <img src="https://media.tenor.com/YZb1xqPDyVYAAAAd/uma-musume.gif" width="200"/>
 </p>
 
 
